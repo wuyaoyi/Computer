@@ -1,2 +1,2 @@
-# Computer
-I am a handsome boy.Do you love me?
+我是 wuyaoyi
+我要努力实现我的目标。
